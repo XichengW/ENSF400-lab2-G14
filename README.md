@@ -4,4 +4,5 @@ ENSF400 lab2 Group14
 
 Justin: discord username: justinwxc
 
-Gisa : Discord username : gyserr
+Gisa Discord username : gyserr
+
