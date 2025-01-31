@@ -6,3 +6,4 @@ Justin: discord username: justinwxc
 
 Gisa Discord username : gyserr
 
+Gisa llove this class
